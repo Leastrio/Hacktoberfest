@@ -36,4 +36,4 @@
 
 10 - The Pursuit of Happyness
 
-*A heart touching movie that motivates you to do good in life :heart: *
+*A heart touching movie that motivates you to do good in life :heart:*
